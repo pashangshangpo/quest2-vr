@@ -19,7 +19,7 @@ Oculus Quest 2 这次的Quest 2可谓是给VR玩家们带来了惊喜满满，�
 
 那废话不多说，我们一起来看看都有哪些值得玩的游戏资源吧！ 
 
-Oculus Quest 2一体机VR游戏合集+PCVR游戏合集.zip
+[Oculus Quest 2一体机VR游戏合集+PCVR游戏合集.zip](https://pay.jscs.top/p/vr)
 
 1、2020年最高付费应用：《光剑节奏Beat Saber》
 
@@ -149,6 +149,6 @@ YouTube作为全球知名视频网站，拥有海量视频资源。2017年谷歌
 ![image](https://user-images.githubusercontent.com/28686832/173170830-117bca30-c1c5-4782-8b1a-5fda754f7f11.png)
 
 
-Oculus Quest 2一体机VR游戏合集+PCVR游戏合集
+[Oculus Quest 2一体机VR游戏合集+PCVR游戏合集](https://pay.jscs.top/p/vr)
 
 https://pay.jscs.top/p/vr
